@@ -1,0 +1,2 @@
+# faqat-sen-uchun
+yagona
